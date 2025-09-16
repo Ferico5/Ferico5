@@ -1,6 +1,6 @@
 ## Hey! Nice to see you. 👋
 
-### I'm Ferico, Fullstack web developer from Indonesia.
+### I'm Ferico, Fullstack web developer from Indonesia. I'm open to freelance job vacancies.
 
 ## 🌐 Socials:
 
